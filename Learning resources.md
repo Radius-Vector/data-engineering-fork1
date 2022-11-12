@@ -9,7 +9,7 @@
 ## Excel
 1. [Excel для новичков](https://stepik.org/course/68712/)
 2. [Полезные функции Excel](https://stepik.org/course/3554/promo) 
-
+pornhub bro
 ## SQL
 1. [Интерактивный онлайн-курс по SQL СУБД PostgreSQL](https://learndb.ru/) (Русский)
 2. [Интерактивный SQL учебник с упражнениями](https://sql-ex.ru/) (Русский)
