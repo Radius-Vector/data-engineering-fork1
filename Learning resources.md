@@ -76,7 +76,7 @@ xvideos
 1. [Введение в Data Science и машинное обучение](https://stepik.org/course/4852/) (Русский)
 
 ## Machine Learning
-
+YFFKGHKHJBHUKHBKHKHJ
 
 ## Облачные вычисления
 1. [AWS Certified Solutions Architect - Associate](https://www.udemy.com/course/aws-certified-solutions-architect-associate-exam/) (English)
